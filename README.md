@@ -1,1 +1,1 @@
-# laba1
+#  Viktoria ISiT 1 gr.
